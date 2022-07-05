@@ -2,7 +2,7 @@
 ![Alt Text](https://64.media.tumblr.com/9b7d8861d8d4bc98ee2136ef3d4bb4e0/tumblr_n4rjs1fg6e1snc5kxo1_500.gifv)
 
 
-IngredientsIngredient Checklist
+Ingredients Checklist!!!
 
 - [ ] 1 cup all-purpose flour, (spooned and leveled)
 
@@ -18,7 +18,7 @@ IngredientsIngredient Checklist
 
 - [ ] 1 large egg
 
-- [ ]1 tablespoon vegetable oil
+- [ ] 1 tablespoon vegetable oil
 
 - [ ] Assorted toppings, such as butter, maple syrup, confectioners' sugar, honey, jams, preserves, sweetened whipped cream, or chocolate syrup
 
